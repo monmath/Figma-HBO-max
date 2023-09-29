@@ -1,1 +1,1 @@
-![HBO](https://github.com/monmath/Figma-HBO-max/assets/104066287/6bcea847-00d3-4842-b2be-1c0f627f9177)
+![HBO](https://github.com/monmath/Figma-HBO-max/assets/104066287/7e4c7d40-2ef5-4f30-ac86-d950cccf855e)
